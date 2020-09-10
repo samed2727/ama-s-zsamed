@@ -1,0 +1,1 @@
+# ama-s-zsamed
